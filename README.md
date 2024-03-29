@@ -2,7 +2,7 @@
 - 👀 I’m interested in Tecnology
 - 🌱 I’m currently learning DSA
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me ...
+- 📫 How to reach me : direct msg on sdwivedi1551@gmaill.com
 - 😄 Pronouns: shibbu
 - ⚡ Fun fact: Still feel stuck in DSA 
 
